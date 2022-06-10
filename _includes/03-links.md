@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Discord](https://discord.com/channels/806845504003506256/940290178717724672)
